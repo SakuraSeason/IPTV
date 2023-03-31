@@ -1,5 +1,5 @@
 # IPTV
-**X直播源在线地址综合汇总:[点击查看](Xzbtv6.github.io)**  
+**X直播源在线地址综合汇总:[点击查看](https://xzbtv6.github.io/)**  
 **X直播影音数码综合Telegram交流群:[点击加入](https://t.me/Xzbtv6)**  
 **X直播影音数码综合Telegram频道:[点击加入]()**  
 # 免责声明
